@@ -1,6 +1,6 @@
 # How to Get a Google Phone Number?
 
-[![how to get a google phone number](redd.png)](https://github.com/coreencode/how.to.get.a.google.phone.number)
+[![how to get a google phone number](redd.png)](https://icncomputer.com/how-to-get-a-google-phone-number/)
 
 
 Before creating a Google number, you must already have a Google account and a number with a traditional phone service (either a landline or a mobile carrier). To sign up for Google Voice to get your free phone number:
